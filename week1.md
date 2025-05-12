@@ -21,4 +21,8 @@ In comparing the usage of Latino to Indian, Caminero-Santangelo gives a starting
 Extending from this quote, this becomes profitable because consumerism IS the cultural currency of the united states, as such, in order to assimilate you must be a consumer. By creating a label that does not truly fit anyone who it describes, making them feel othered, then providing and productizing what is claimed to be the panacea to make the consumer feel as if they are part of a group that they can never truly be a part of.
 
 
- 
+hi, 
+I liked how you mentioned that latinx is not a trend but instead a meaningful response to femicide, etc. I think that people tend to label things they wish were not as a "trend" as a way to minimize their lastingness and avoid dealing with them on merit. 
+We especially see this in the way people interact with transness, hoping its just a phase or fad and soon things will return to "normal". Since latinx is also an attempt to be trans inclusionary the labelling of it as a trend makes sense unfortunately.
+
+After all a trend is just some temporary
