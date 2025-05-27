@@ -45,7 +45,22 @@ the enormous gulf that must separate what is conceived as occurring "in here" fr
 The product of our original and actual birth, childhood, being ruled by the body, is the source of all obscurity and confusion in our thinking. For, as body, we are completely reactive and nondiscriminative, unable to make the most basic distinctions between an inner occurrence and an external one
 
 We assume nothing. We refuse to let our bodies mystify us: "I shall close my eyes, I shall stop my ears, I shall call away all my senses" (HR 1:157). We begin afresh. The result, in the Meditations, is a securing of all the boundaries that, in childhood, are so fragile: between the "inner" and the "outer," between the subjective and the objective, between self and world
+= Focaul
 
+“imagine what we could be” by getting rid of the double bind of simultaneously being individualized and totalized (“Subject and Power” 335-6/783-4) so that we may promote new forms of subjectivity through refusals of the kind of individuality imposed onus for several centuries"
 
+= https://monoskop.org/images/0/03/Technologies_of_the_Self_A_Seminar_with_Michel_Foucault.pdf
+
+The way the martyr faces death is the model for the
+penitent. For the relapsed to be reintegrated into the church, he
+must expose himself voluntarily to ritual martyrdom. Penance is
+the affect of change, of rupture with self, past, and world
+
+= https://ecommons.udayton.edu/cgi/viewcontent.cgi?article=1057&context=hst_fac_pub
+
+The unrestrained capacity to move
+became equated early in the American cultural imagination with personal reinvention and
+self-determination (Feldman 13-19). Those who could control their own movement were
+deemed self-sufficient, independent agents
 
 
