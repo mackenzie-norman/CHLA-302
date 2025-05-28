@@ -7,7 +7,7 @@ In the First Treatise of Civil Government, Locke attacks Sir Robert Filmer's def
 = The book 
 The truth was that I didn’t know which I was. I wasn’t allowed to claim the thing I felt and I didn’t feel the thing I was supposed to claim
 What can I say? she grew on me (108)
-"leave him alone, "my mom chimed"maribel is a nice girl"
+"leave him alone, "my mom chimed "maribel is a nice girl"
 "Maybe", my dad conceded "but not for mayor"
 My dads narrow mindedness only made me feel more connected to Maribel, though. Like maybe I was the only one who understood her, the only one who was willing to give her a chance.(109)
 
@@ -62,5 +62,8 @@ The unrestrained capacity to move
 became equated early in the American cultural imagination with personal reinvention and
 self-determination (Feldman 13-19). Those who could control their own movement were
 deemed self-sufficient, independent agents
+
+1960s suspicions of the equation of cars and true manhood with a cleverly indirect proAmerican, blue-collar populism by channeling that skepticism towards foreign luxury
+vehicles
 
 
