@@ -4,6 +4,8 @@
 
 In the First Treatise of Civil Government, Locke attacks Sir Robert Filmer's defense of absolute monarchy, entitled Patriarcha. Sir Robert Filmer, like Freud, identifies patriarchy and monarchy, political and paternal power. Filmer, like Freud, derives constitutional structure from a primal or prehistoric mythical family, from the paternal powers of our father Adam. Like Freud, Filmer attributes to the primal father unlimited power over his sons, including the power and propensity to castrate them.
 
+Growing up consists in finding new toys,new symbolic equivalents [37]
+
 = The book 
 The truth was that I didn’t know which I was. I wasn’t allowed to claim the thing I felt and I didn’t feel the thing I was supposed to claim
 
