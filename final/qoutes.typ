@@ -6,7 +6,9 @@ In the First Treatise of Civil Government, Locke attacks Sir Robert Filmer's def
 
 = The book 
 The truth was that I didn’t know which I was. I wasn’t allowed to claim the thing I felt and I didn’t feel the thing I was supposed to claim
+
 What can I say? she grew on me (108)
+
 "leave him alone, "my mom chimed "maribel is a nice girl"
 "Maybe", my dad conceded "but not for mayor"
 My dads narrow mindedness only made me feel more connected to Maribel, though. Like maybe I was the only one who understood her, the only one who was willing to give her a chance.(109)
@@ -47,7 +49,7 @@ The product of our original and actual birth, childhood, being ruled by the body
 We assume nothing. We refuse to let our bodies mystify us: "I shall close my eyes, I shall stop my ears, I shall call away all my senses" (HR 1:157). We begin afresh. The result, in the Meditations, is a securing of all the boundaries that, in childhood, are so fragile: between the "inner" and the "outer," between the subjective and the objective, between self and world
 = Focaul
 
-“imagine what we could be” by getting rid of the double bind of simultaneously being individualized and totalized (“Subject and Power” 335-6/783-4) so that we may promote new forms of subjectivity through refusals of the kind of individuality imposed onus for several centuries"
+“imagine what we could be” by getting rid of the double bind of simultaneously being individualized and totalized (“Subject and Power” 335-6/783-4) so that we may promote new forms of subjectivity through refusals of the kind of individuality imposed on us for several centuries"
 
 = https://monoskop.org/images/0/03/Technologies_of_the_Self_A_Seminar_with_Michel_Foucault.pdf
 
