@@ -23,7 +23,13 @@ Maribel and I deserved to be together and she deserved to see the snow if she wa
 
 You could trace is back infinitely. All these different veins, but who knew which one led to the heart? And then again, maybe it had nothing to do with any of us. Maybe God had a plan and He knew from the second the Riveras set foot here that He was putting them on a path towards this. Or maybe it was completely random, just something that happened. (261-62)
 
+Looking at her, sure, I could have looked at her all day. But actually having conversations with her? That was a different story [69]
 
+I watched as garret took a step back and surveyed Maribel from head to toe, nodding in appreciation. She didn’t squirm, didn’t shift, just stood there letting herself be ogled.
+
+Had I really punched him? But instead of feeling pain or any kind of remorse, I felt exhilarated 
+
+I tried to imagine it, going off to college in a few years, walking into a life that was all my own, where I didn’t have to wear a tie to church, one where I didn’t even have to go to church, where no one could ground me, and where I could do whatever I wanted
 = https://labelmelatin.com/wp-content/uploads/2024/09/Adrienne-Erazo-The-Emotions-of-Immigrant-Identity-Processing-in-Cristina-Henriquezs-The-Book-of-Unknown-Americans-Edited-6-12-24-.pdf
 In this sense, the novel represents part of a larger corpus of diasporic literature that “reflect[s] the binaries of belonging and displacement that disrupt identity and undermine self-worth and self-determination” (Kenney 180).
 
