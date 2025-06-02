@@ -6,6 +6,7 @@ In the First Treatise of Civil Government, Locke attacks Sir Robert Filmer's def
 
 Growing up consists in finding new toys,new symbolic equivalents [37]
 
+the struggle for recognition is to castrate or be castrated; to be master or slave [123]
 = The book 
 The truth was that I didn’t know which I was. I wasn’t allowed to claim the thing I felt and I didn’t feel the thing I was supposed to claim
 
